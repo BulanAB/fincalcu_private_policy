@@ -326,9 +326,7 @@ If you have questions or comments about this notice, you may email us at abbulan
 
 __________
 
-La Banda
-
-Makati, Metro Manila 1212
+Makati, Metro Manila 
 
 Philippines
 
